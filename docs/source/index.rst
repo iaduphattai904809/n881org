@@ -1,7 +1,7 @@
 N88  - nhà cái hàng đầu về Casino trực tuyến tại Việt Nam - n881.org
 ===================================
 
-N88 được biết đến là nhà cái chuyên cung cấp các sản phẩm, dịch vụ hàng về Casino online. Tại N 88, người chơi sẽ có rất nhiều sự lựa chọn với những trò chơi như Baccarat, Xóc đĩa, Tài xỉu, Rồng Hổ,...cùng nhiều phiên bản từ truyền thống tới hiện đại. Để có thể truy cập vào nhà cái N88 nhanh nhất, hãy sử dụng đường link chính thức không bị chặn tại N881.org.
+`N88 <https://789kubet.com/>`_ được biết đến là nhà cái chuyên cung cấp các sản phẩm, dịch vụ hàng về Casino online. Tại N 88, người chơi sẽ có rất nhiều sự lựa chọn với những trò chơi như Baccarat, Xóc đĩa, Tài xỉu, Rồng Hổ,...cùng nhiều phiên bản từ truyền thống tới hiện đại. Để có thể truy cập vào nhà cái N88 nhanh nhất, hãy sử dụng đường link chính thức không bị chặn tại N881.org.
 
 Thông tin liên hệ: 
 
@@ -11,7 +11,7 @@ Phone: 0834440012.
 
 Email: info@n881.org. 
 
-Website: https://n881.org/ 
+Website: https://n881.org/
 
 Author: https://n881.org/coo-bull-do/
 
